@@ -1,1 +1,0 @@
-# Mtriethub-bounty-farm
